@@ -4,5 +4,5 @@
 - Complete ban
 - life time
 - take 1/24hours to ban
-- need proxies 
--  contact: https://t.me/cryptomanm100
+- need proxies
+- contact: https://t.me/cryptomanm100
